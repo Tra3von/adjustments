@@ -1,2 +1,0 @@
-# adjustments
-ka ba kena 
